@@ -8,4 +8,14 @@
 <!--- Video, board, mind... W/E... I like games, let's play, GL HF!
 Wizibeer/Wizibeer is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
---->
+--->                                                        
+
+
+
+
+
+
+                                   
+          [stop now.md](https://github.com/Wizibeer/Wizibeer/files/9232303/stop.now.md)
+[stop now.md](https://github.com/Wizibeer/Wizibeer/files/9232307/stop.now.md)
+[892 (2022_07_06 21_33_27 UTC).md](https://github.com/Wizibeer/Wizibeer/files/9232309/892.2022_07_06.21_33_27.UTC.md)
